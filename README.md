@@ -1,4 +1,7 @@
-# <center> wip blehh <center/>
+<img width="1515" height="463" alt="cece" src="https://github.com/user-attachments/assets/8b053d3c-3d86-45cf-acdc-a76cf8530da0" />
+
+<center> wip blehh <center/>
+
 
 <!--
 **harukiiame/harukiiame** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
