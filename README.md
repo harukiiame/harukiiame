@@ -1,6 +1,11 @@
 　
 <div align="center"><b>hiii</b>
   <br/><br/>
+  
+  ![Profile views](https://views.igorkowalczyk.dev/api/badge/harukiiame?style=flat&color=ff788c&label=sillies)
+
+  <br/><br/>
+  
 <img width="296" height="256" alt="Stamp0721" src="https://github.com/user-attachments/assets/61bdfab7-e4ca-4fbf-85f6-2169b47a835b" />
   <br/><br/>
 
