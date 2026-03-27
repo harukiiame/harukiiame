@@ -8,5 +8,4 @@
 
 ![animated](https://github.com/user-attachments/assets/044cb4ee-ea55-4e25-8047-5cd66620879f)
 
-  <br/><br/>
 </div>
