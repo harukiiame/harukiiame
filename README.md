@@ -1,7 +1,7 @@
 <img width="1515" height="463" alt="cece" src="https://github.com/user-attachments/assets/8b053d3c-3d86-45cf-acdc-a76cf8530da0" />
   <br/><br/>
   
-<div align="center"><h3><b><i>i'll be gone for some days and prob. come back around 25th jan</i></b></h3></div>
+<div align="center"><h3><b><i>i'll decor this readme later ueghugaregre</i></b></h3></div>
     <br/>
 <div align="center">;; <i>ask me beforehand to RP</i></div>
   <br/>
