@@ -1,6 +1,9 @@
-<img width="1515" height="463" alt="cece" src="https://github.com/user-attachments/assets/8b053d3c-3d86-45cf-acdc-a76cf8530da0" />
+
+<div align="center"><b>hiii</b></div>
   <br/><br/>
-  
+<div align="center"><img width="296" height="256" alt="Stamp0721" src="https://github.com/user-attachments/assets/61bdfab7-e4ca-4fbf-85f6-2169b47a835b" /></div>
+  <br/><br/>
+<div align="center"> [strawpage](https://harukiiame.straw.page/) - - - - [ata](https://harukiiame.atabook.org/)</div>
 <div align="center"><h3><b><i>i'll decor this readme later ueghugaregre</i></b></h3></div>
     <br/>
 <div align="center">;; <i>ask me beforehand to RP</i></div>
