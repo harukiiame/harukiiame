@@ -4,9 +4,12 @@
   
   ![Profile views](https://views.igorkowalczyk.dev/api/badge/harukiiame?style=flat&color=ff788c&label=sillies)
 
+<img width="99" height="56" alt="jhgjghf" src=https://64.media.tumblr.com/d4126e730d34c4895860a4b6e982c720/32bebc852c56a8ca-09/s100x200/3ea5279cf85b7fdce45d829132d8ce2c752f22e3.pnj />
+
   <br/><br/>
-  
+
 <img width="296" height="256" alt="Stamp0721" src="https://github.com/user-attachments/assets/61bdfab7-e4ca-4fbf-85f6-2169b47a835b" />
+
   <br/><br/>
 
 [straw](https://harukiiame.straw.page/)　　[ata](https://harukiiame.atabook.org/)
