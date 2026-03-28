@@ -15,6 +15,10 @@
   <br/><br/>
 
 [straw](https://harukiiame.straw.page/)　　[ata](https://harukiiame.atabook.org/)
+  
+  <img width="250" height="179" alt="ponyyy" src="https://github.com/user-attachments/assets/3c700762-5891-4ce0-b1a5-2ff01630d582" />
+
+  <b>you'll often find me as one of these two :p </b>
 
 ![animated](https://github.com/user-attachments/assets/044cb4ee-ea55-4e25-8047-5cd66620879f)
 
