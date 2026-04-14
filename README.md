@@ -1,5 +1,5 @@
-　
-<div align="center"><b>hiii</b>
+
+　<div align="center"><b>hiii</b>
   <br/><br/>
   
   ![Profile views](https://views.igorkowalczyk.dev/api/badge/harukiiame?style=flat&color=ff788c&label=sillies)
@@ -16,7 +16,7 @@
 
 [straw](https://harukiiame.straw.page/)　　[ata](https://harukiiame.atabook.org/)
   
-  <img width="400" height="179" alt="ponyyy" src="https://github.com/user-attachments/assets/fcb85c17-9ec7-4e85-91e2-2db03fb9ed49" />
+  <img width="510" height="179" alt="ponyyy" src="https://github.com/user-attachments/assets/c9b6eb41-45af-452c-9482-936414445690" />
 
   <b>you'll often find me as one of these three :p </b>
 
