@@ -14,7 +14,7 @@
 
   <br/><br/>
 
-[straw](https://harukiiame.straw.page/)　　[ata](https://harukiiame.atabook.org/)
+[straw](https://harukiloveskanade.straw.page/)　　[ata](https://harukiiame.atabook.org/)
   
   <img width="510" height="179" alt="ponyyy" src="https://github.com/user-attachments/assets/c9b6eb41-45af-452c-9482-936414445690" />
 
