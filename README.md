@@ -16,10 +16,6 @@
 
 [straw](https://harukiloveskanade.straw.page/)　　[ata](https://harukiiame.atabook.org/)
   
-  <img width="510" height="179" alt="ponyyy" src="https://github.com/user-attachments/assets/c9b6eb41-45af-452c-9482-936414445690" />
-
-  <b>you'll often find me as one of these three :p </b>
-
 ![animated](https://github.com/user-attachments/assets/044cb4ee-ea55-4e25-8047-5cd66620879f)
 
 </div>
